@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LoganXWoo10
 - 👀 I’m interested in Games, Novels and Films.
-- 🌱 I’m currently learning Japanese
+- 🌱 I’m currently learning Japanese, Video Editing, Live 2D Animation and Programming.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
